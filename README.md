@@ -31,5 +31,5 @@ not for the one who goes crazy at her beauty.
 ```
 
 ```
-Never Give Up on Love if you feel its worthwaiting.
+Never give up on love if you feel it's worth waiting.
 ```
