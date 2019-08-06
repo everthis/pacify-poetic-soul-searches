@@ -23,3 +23,7 @@ She is a storm worth facing and surviving.
 ```
 The one who cares is the one who loves.
 ```
+
+```
+She was looking for someone who could stay by her side not for the one who goes crazy at her beauty.
+```
