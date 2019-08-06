@@ -3,3 +3,7 @@
 ```
 Love her too much.
 ```
+
+```
+The one who cares is the one who loves.
+```
