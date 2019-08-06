@@ -33,3 +33,22 @@ not for the one who goes crazy at her beauty.
 ```
 Never give up on love if you feel it's worth waiting.
 ```
+
+```
+Choose the one who choose you before anything and everything.
+```
+
+```
+Sometimes love dies without warning.
+```
+
+```
+Express your love, we can't read minds.
+```
+
+```
+Distance means so little when someone means so much.
+```
+
+
+
