@@ -17,7 +17,7 @@ Her heart is a fragile glass, if it breaks the broken pieces will hurt you too.
 ```
 
 ```
-She is a storm worthfacing and surviving.
+She is a storm worth facing and surviving.
 ```
 
 ```
