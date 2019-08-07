@@ -69,5 +69,13 @@ very deeply.
 As long as we don't die, this is gonna be one hell of a story.
 ```
 
+```
+I love you, I thought. But I didn't say it.
+```
+
+```
+Love isn't about perfection, it's about being fearless.
+```
+
 
 
