@@ -13,6 +13,14 @@ Miracles happen when she's around me.
 ```
 
 ```
+I don't want to be friends, I want all of you.
+```
+
+```
+I smiled, we were under the same sky at least.
+```
+
+```
 Her heart is a fragile glass, if it breaks
 the broken pieces will hurt you too.
 ```
