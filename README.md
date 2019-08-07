@@ -55,3 +55,19 @@ I love people who gossip behind my back. That's exactly
 where they belong. Behind my back.
 ```
 
+```
+People are not swings, you can't keep pushing them away
+and expecting them to come back.
+```
+
+```
+It is both a blessing and a curse to feel everything so
+very deeply.
+```
+
+```
+As long as we don't die, this is gonna be one hell of a story.
+```
+
+
+
