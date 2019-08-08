@@ -93,5 +93,7 @@ I love you, I thought. But I didn't say it.
 Love isn't about perfection, it's about being fearless.
 ```
 
-
+```
+Even though we never said it to each other, we knew. 
+```
 
