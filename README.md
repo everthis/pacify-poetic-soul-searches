@@ -1,6 +1,14 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+When it is all finished, you'll discover it was never random.
+```
+
+```
+You or none.
+```
+
+```
 Love her too much.
 ```
 
