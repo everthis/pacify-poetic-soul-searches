@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+The responsibility of love: to keep another's heart safe.
+```
+
+```
 When it is all finished, you'll discover it was never random.
 ```
 
