@@ -109,3 +109,7 @@ Love isn't about perfection, it's about being fearless.
 Even though we never said it to each other, we knew. 
 ```
 
+```
+In love we become little more kind.
+```
+
