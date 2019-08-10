@@ -113,3 +113,6 @@ Even though we never said it to each other, we knew.
 In love we become little more kind.
 ```
 
+```
+The one you love always looks prettiest of all.
+```
