@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+Life is like an ice cream, taste its flavour before it melts away.
+```
+
+```
 The responsibility of love: to keep another's heart safe.
 ```
 
