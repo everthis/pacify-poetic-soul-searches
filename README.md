@@ -1,6 +1,22 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+I can't seem to calm down
+'Cause I need you here now
+No I can't put my phone down
+Hoping that you call now
+Scrolling through our pictures
+I'm closer to you
+```
+
+```
+I dial the number but hanged it down.
+Being alone for long was making me down.
+I close my eyes and ride back to the dark,
+where I found you and together we sparked.
+```
+
+```
 Take her under the moonlight and let her speak her heart out.
 ```
 
