@@ -17,6 +17,11 @@ where I found you and together we sparked.
 ```
 
 ```
+Someday when the pages of my life end, I know that you
+will be one of the most beautiful chapters.
+```
+
+```
 Take her under the moonlight and let her speak her heart out.
 ```
 
