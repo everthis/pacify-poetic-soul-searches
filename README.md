@@ -3,7 +3,7 @@
 ```
 I can't seem to calm down
 Because I need you here now
-No I can't put my phone down
+No, I can't put my phone down
 Hoping that you call now
 Scrolling through our pictures
 I'm closer to you
