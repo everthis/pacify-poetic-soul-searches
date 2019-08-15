@@ -2,7 +2,7 @@
 
 ```
 I can't seem to calm down
-'Cause I need you here now
+Because I need you here now
 No I can't put my phone down
 Hoping that you call now
 Scrolling through our pictures
