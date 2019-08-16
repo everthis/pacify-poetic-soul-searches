@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+I am jealous of every star near you, because I'm not one of them.
+```
+
+```
 I can't seem to calm down
 Because I need you here now
 No, I can't put my phone down
