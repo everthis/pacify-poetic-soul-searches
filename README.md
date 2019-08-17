@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+Biggest regret of my life - to fight with the ones who loved me.
+```
+
+```
 I am jealous of every star near you, because I'm not one of them.
 ```
 
