@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+I had so many chances I blew cause I was too damn shy.
+```
+
+```
 Never mistake motion for action.
 ```
 
