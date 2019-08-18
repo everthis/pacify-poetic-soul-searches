@@ -1,6 +1,11 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+When I miss you, I re-read our old messages and smile
+like an idiot.
+```
+
+```
 I had so many chances I blew cause I was too damn shy.
 ```
 
