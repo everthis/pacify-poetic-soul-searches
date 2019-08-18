@@ -1,6 +1,10 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+Never mistake motion for action.
+```
+
+```
 Biggest regret of my life - to fight with the ones who loved me.
 ```
 
