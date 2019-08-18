@@ -182,3 +182,9 @@ Look inside to know a person, everything out is just an illusion.
 ```
 Beautiful things don't ask for attention.
 ```
+
+```
+I asked God, "Why are you taking me through troubled water?". He
+replied, "Because your enemies can't swim."
+```
+
