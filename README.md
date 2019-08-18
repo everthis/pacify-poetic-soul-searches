@@ -161,3 +161,7 @@ The one you love always looks prettiest of all.
 ```
 Look inside to know a person, everything out is just an illusion.
 ```
+
+```
+Beautiful things don't ask for attention.
+```
