@@ -5,6 +5,10 @@ Never mistake motion for action.
 ```
 
 ```
+Lol, today you said hi to me and I died.
+```
+
+```
 Biggest regret of my life - to fight with the ones who loved me.
 ```
 
