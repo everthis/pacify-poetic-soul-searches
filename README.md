@@ -188,3 +188,6 @@ I asked God, "Why are you taking me through troubled water?". He
 replied, "Because your enemies can't swim."
 ```
 
+```
+The very essence of romance is uncertainty.
+```
