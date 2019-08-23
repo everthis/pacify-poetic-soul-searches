@@ -1,7 +1,11 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
-Nothing is impossible, the word itself says 'I'm possible'.
+Nothing is impossible, the word itself says "I'm possible".
+```
+
+```
+The journey of a thousand miles begins with one step.
 ```
 
 ```
