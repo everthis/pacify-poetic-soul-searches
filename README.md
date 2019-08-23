@@ -1,6 +1,11 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
 ```
+If you can't deal with your negativity, at least avoid
+drowning others into it.
+```
+
+```
 Nothing is impossible, the word itself says "I'm possible".
 ```
 
