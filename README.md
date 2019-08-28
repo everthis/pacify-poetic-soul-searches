@@ -6,6 +6,10 @@ drowning others into it.
 ```
 
 ```
+Go to the people and the places that set a spark in your soul.
+```
+
+```
 Nothing is impossible, the word itself says "I'm possible".
 ```
 
