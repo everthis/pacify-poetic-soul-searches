@@ -6,6 +6,10 @@ drowning others into it.
 ```
 
 ```
+When you are angry, be silent.
+```
+
+```
 Go to the people and the places that set a spark in your soul.
 ```
 
