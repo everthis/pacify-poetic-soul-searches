@@ -10,6 +10,11 @@ When you are angry, be silent.
 ```
 
 ```
+Never Apologise
+Never Explain
+```
+
+```
 Go to the people and the places that set a spark in your soul.
 ```
 
