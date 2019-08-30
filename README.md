@@ -15,6 +15,10 @@ Never Explain
 ```
 
 ```
+The hardest choices require the strongest wills.
+```
+
+```
 Go to the people and the places that set a spark in your soul.
 ```
 
