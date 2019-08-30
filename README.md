@@ -10,7 +10,7 @@ When you are angry, be silent.
 ```
 
 ```
-Never Apologise
+Never Apologize
 Never Explain
 ```
 
@@ -35,7 +35,7 @@ As you wish.
 ```
 
 ```
-Never apologize.
+If you are never alone, you cannot know yourself.
 ```
 
 ```
