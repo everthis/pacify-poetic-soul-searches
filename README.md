@@ -10,6 +10,10 @@ When you are angry, be silent.
 ```
 
 ```
+I found the key to happiness, stay away from idiots.
+```
+
+```
 Never Apologize
 Never Explain
 ```
