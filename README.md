@@ -10,6 +10,11 @@ When you are angry, be silent.
 ```
 
 ```
+No amount of guilt can change the past,
+and no amount of anxiety can change the future.
+```
+
+```
 I found the key to happiness, stay away from idiots.
 ```
 
