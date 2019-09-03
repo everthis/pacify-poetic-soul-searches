@@ -24,6 +24,12 @@ Never Explain
 ```
 
 ```
+Everyone
+No matter how well-intentioned and pure of heart
+Has a dark side.
+```
+
+```
 The hardest choices require the strongest wills.
 ```
 
