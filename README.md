@@ -24,6 +24,11 @@ Never Explain
 ```
 
 ```
+You ever just see someone's growth and think "damn
+that's beautiful."
+```
+
+```
 Everyone
 No matter how well-intentioned and pure of heart
 Has a dark side.
