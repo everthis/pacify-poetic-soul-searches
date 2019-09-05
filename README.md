@@ -55,6 +55,11 @@ She is air, I am the fire.
 ```
 
 ```
+Be not to shy, to say "yes".
+Be not to afraid, to say "no".
+```
+
+```
 As you wish.
 ```
 
