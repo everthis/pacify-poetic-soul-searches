@@ -29,6 +29,10 @@ that's beautiful."
 ```
 
 ```
+The beauty you see in me is a reflection of you.
+```
+
+```
 Everyone
 No matter how well-intentioned and pure of heart
 Has a dark side.
