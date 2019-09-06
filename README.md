@@ -24,6 +24,11 @@ Never Explain
 ```
 
 ```
+You're only human.
+Forgive yourself!
+```
+
+```
 You ever just see someone's growth and think "damn
 that's beautiful."
 ```
