@@ -19,6 +19,11 @@ I found the key to happiness, stay away from idiots.
 ```
 
 ```
+I have more conversations
+in my head than I do in real life.
+```
+
+```
 Never Apologize
 Never Explain
 ```
