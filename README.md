@@ -54,6 +54,11 @@ direct your life and you will call it fate.
 ```
 
 ```
+If you can't laugh at yourself, you're missing
+the best joke of all.
+```
+
+```
 The hardest choices require the strongest wills.
 ```
 
