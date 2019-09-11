@@ -74,6 +74,10 @@ Nothing is impossible, the word itself says "I'm possible".
 The journey of a thousand miles begins with one step.
 ```
 
+>  ~~Why is this happening to me?~~ 
+>  what is this teaching me?
+
+
 ```
 She is air, I am the fire.
 ```
