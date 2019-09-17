@@ -77,6 +77,9 @@ The journey of a thousand miles begins with one step.
 >  ~~Why is this happening to me?~~ 
 >  what is this teaching me?
 
+```
+Don't accept the work-eat-entertainment-sleep cycle as life.
+```
 
 ```
 She is air, I am the fire.
