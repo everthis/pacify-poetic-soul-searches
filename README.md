@@ -6,6 +6,10 @@ drowning others into it.
 ```
 
 ```
+Stay kind.
+```
+
+```
 When you are angry, be silent.
 ```
 
