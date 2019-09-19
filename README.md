@@ -10,6 +10,10 @@ Stay kind.
 ```
 
 ```
+When I follow my heart, it leads me to you.
+```
+
+```
 When you are angry, be silent.
 ```
 
