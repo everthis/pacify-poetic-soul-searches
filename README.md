@@ -14,6 +14,10 @@ When I follow my heart, it leads me to you.
 ```
 
 ```
+I have crossed oceans of time to find you.
+```
+
+```
 When you are angry, be silent.
 ```
 
