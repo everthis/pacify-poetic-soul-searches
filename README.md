@@ -51,6 +51,10 @@ The second best time is now.
 ```
 
 ```
+I don't have a choice.
+```
+
+```
 You ever just see someone's growth and think "damn
 that's beautiful."
 ```
