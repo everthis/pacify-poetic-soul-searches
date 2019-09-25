@@ -102,6 +102,18 @@ The journey of a thousand miles begins with one step.
 >  ~~Why is this happening to me?~~ 
 >  what is this teaching me?
 
+
+```
+Monday doesn't suck.
+The weather doesn’t suck.
+Your job doesn’t suck. 
+Your partner doesn’t suck. 
+Your negative mindset sucks. 
+Your lack of self-worth and self-love sucks. 
+Stop complaining about what’s missing from your life
+and go manifest the fuck out of your dreams.
+```
+
 ```
 Don't accept the work-eat-entertainment-sleep cycle as life.
 ```
