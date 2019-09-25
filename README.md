@@ -105,12 +105,12 @@ The journey of a thousand miles begins with one step.
 
 ```
 Monday doesn't suck.
-The weather doesn’t suck.
-Your job doesn’t suck. 
-Your partner doesn’t suck. 
+The weather doesn't suck.
+Your job doesn't suck. 
+Your partner doesn't suck. 
 Your negative mindset sucks. 
 Your lack of self-worth and self-love sucks. 
-Stop complaining about what’s missing from your life
+Stop complaining about what's missing from your life
 and go manifest the fuck out of your dreams.
 ```
 
