@@ -84,6 +84,11 @@ the best joke of all.
 ```
 
 ```
+The aim of argument, or of discussion,
+should not be victory, but progress.
+```
+
+```
 The hardest choices require the strongest wills.
 ```
 
