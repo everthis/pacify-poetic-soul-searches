@@ -27,6 +27,11 @@ and no amount of anxiety can change the future.
 ```
 
 ```
+I like the kind of people who get excited
+over the stars at night.
+```
+
+```
 I found the key to happiness, stay away from idiots.
 ```
 
