@@ -46,6 +46,17 @@ Never Explain
 ```
 
 ```
+Don't expect anything from anyone, just don't do that.
+Live for yourself.
+Before you speak, listen.
+Before you write, think.
+Before you spend, earn.
+Before you hate, love.
+Before you quit, try.
+Before you die, live.
+```
+
+```
 You're only human.
 Forgive yourself!
 ```
