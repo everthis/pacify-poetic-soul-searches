@@ -75,6 +75,11 @@ I don't have a choice.
 ```
 
 ```
+You are not responsible for the programming you received in childhood.
+But as an adult, you are 100% responsible for fixing it.
+```
+
+```
 You ever just see someone's growth and think "damn
 that's beautiful."
 ```
