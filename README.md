@@ -95,6 +95,11 @@ Has a dark side.
 ```
 
 ```
+One does not become enlightened by imagining figures of light,
+but by making the darkness conscious.
+```
+
+```
 Until you make the unconscious conscious, it will
 direct your life and you will call it fate.
 ```
