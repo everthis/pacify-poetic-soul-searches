@@ -360,6 +360,12 @@ replied, "Because your enemies can't swim."
 ```
 
 ```
+There was a time or two that I decided to ask them questions.
+I asked what the meaning of all of this was, silently and mentally,
+and received my answer, 'It is what you make it.'
+```
+
+```
 The very essence of romance is uncertainty.
 ```
 
