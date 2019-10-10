@@ -366,6 +366,11 @@ and received my answer, 'It is what you make it.'
 ```
 
 ```
+You must find the courage to leave the table
+If respect is no longer being served.
+```
+
+```
 The very essence of romance is uncertainty.
 ```
 
