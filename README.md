@@ -10,11 +10,8 @@ Stay kind.
 ```
 
 ```
-When I follow my heart, it leads me to you.
-```
-
-```
-I have crossed oceans of time to find you.
+Be the love
+you never received.
 ```
 
 ```
@@ -147,6 +144,14 @@ and go manifest the fuck out of your dreams.
 
 ```
 Don't accept the work-eat-entertainment-sleep cycle as life.
+```
+
+```
+When I follow my heart, it leads me to you.
+```
+
+```
+I have crossed oceans of time to find you.
 ```
 
 ```
