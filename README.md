@@ -24,6 +24,12 @@ and no amount of anxiety can change the future.
 ```
 
 ```
+It takes very little to govern good people. Very little.
+And bad people cant be governed at all.
+Or if they could I never heard of it.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
