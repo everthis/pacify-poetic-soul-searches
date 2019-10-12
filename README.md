@@ -45,6 +45,16 @@ but because you've done too little of what sparks a light in you.
 ```
 
 ```
+Step over ants.
+Put worms back in the grass.
+Rescue baby caterpillars.
+Release spiders back into your garden.
+Open windows for bees to fly home.
+They are all little souls that deserve a life too.
+```
+
+
+```
 Never Stop.
 ```
 
