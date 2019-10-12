@@ -39,6 +39,16 @@ I found the key to happiness, stay away from idiots.
 ```
 
 ```
+You often feel tired,
+not because you've done too much,
+but because you've done too little of what sparks a light in you.
+```
+
+```
+Never Stop.
+```
+
+```
 I have more conversations
 in my head than I do in real life.
 ```
