@@ -53,6 +53,16 @@ Open windows for bees to fly home.
 They are all little souls that deserve a life too.
 ```
 
+```
+Remove expectations from people,
+and you'll remove their power to hurt your feelings.
+If you don't like something,
+just take away it's only power: your attention.
+```
+
+```
+Never judge someone by the opinion of others.
+```
 
 ```
 Never Stop.
