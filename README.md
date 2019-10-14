@@ -65,6 +65,11 @@ Never judge someone by the opinion of others.
 ```
 
 ```
+If you don't heal what hurt you,
+you will bleed on people who didn't cut you.
+```
+
+```
 Never Stop.
 ```
 
