@@ -70,7 +70,7 @@ you will bleed on people who didn't cut you.
 ```
 
 ```
-Never Stop.
+This is hard. You've done hard things before and I believe in you.
 ```
 
 ```
@@ -81,6 +81,7 @@ in my head than I do in real life.
 ```
 Never Apologize
 Never Explain
+Never Stop
 ```
 
 ```
