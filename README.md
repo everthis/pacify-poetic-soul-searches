@@ -85,6 +85,13 @@ Never Stop
 ```
 
 ```
+The ocean does not apologize for its depth
+and the mountains do not seek forgiveness for the space they take and so,
+neither shall I.
+```
+
+
+```
 Don't expect anything from anyone, just don't do that.
 Live for yourself.
 Before you speak, listen.
