@@ -39,6 +39,12 @@ I found the key to happiness, stay away from idiots.
 ```
 
 ```
+Getting angry with people for making mistakes
+doesn't teach them not to make mistakes,
+it just teaches them to hide them.
+```
+
+```
 You often feel tired,
 not because you've done too much,
 but because you've done too little of what sparks a light in you.
