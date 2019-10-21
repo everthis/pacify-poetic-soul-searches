@@ -85,6 +85,10 @@ in my head than I do in real life.
 ```
 
 ```
+Start seeing everything as God, But keep it a secret.
+```
+
+```
 Never Apologize
 Never Explain
 Never Stop
