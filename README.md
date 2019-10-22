@@ -20,6 +20,11 @@ because reality is finally better than your dreams.
 ```
 
 ```
+She wore a smile with heavenly grace,
+and the prettiest eyes of human race.
+```
+
+```
 Be yourself, everyone else is already taken.
 ```
 
