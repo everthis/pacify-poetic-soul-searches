@@ -44,6 +44,11 @@ Or if they could I never heard of it.
 ```
 
 ```
+Sometimes, magic is just someone spending more time on something
+than anyone else might reasonably expect.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
