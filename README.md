@@ -463,6 +463,13 @@ The very essence of romance is uncertainty.
 ```
 
 ```
+I stood still, vision blurring, and in that moment,
+I heard my heart break. It was a small, clean sound,
+like the snapping of a flower's stem.
+```
+
+
+```
 Maybe it's the best ending.
 ```
 
