@@ -160,8 +160,13 @@ But as an adult, you are 100% responsible for fixing it.
 ```
 
 ```
-You ever just see someone's growth and think "damn
-that's beautiful."
+Tell me, what is it you plan to do
+with your one wild and precious life?
+```
+
+```
+You ever just see someone's growth
+and think "damn that's beautiful."
 ```
 
 ```
