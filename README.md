@@ -54,6 +54,11 @@ than anyone else might reasonably expect.
 ```
 
 ```
+One day, in retrospect, the years of struggle
+will strike you as the most beautiful.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
