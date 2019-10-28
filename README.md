@@ -38,6 +38,11 @@ and no amount of anxiety can change the future.
 ```
 
 ```
+For there is never anything but the present,
+and if one cannot live there, one cannot live anywhere.
+```
+
+```
 I’ve had a lot of worries in my life,
 most of which never happened.
 ```
