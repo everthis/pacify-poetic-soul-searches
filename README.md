@@ -200,6 +200,11 @@ direct your life and you will call it fate.
 ```
 
 ```
+Be picky with who you invest your time in,
+wasted time is worse than wasted money.
+```
+
+```
 If you can't laugh at yourself, you're missing
 the best joke of all.
 ```
