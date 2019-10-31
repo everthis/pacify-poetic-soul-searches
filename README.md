@@ -215,6 +215,11 @@ should not be victory, but progress.
 ```
 
 ```
+When someone is properly grounded in life,
+they shouldn't have to look outside themselves for approval.
+```
+
+```
 The hardest choices require the strongest wills.
 ```
 
