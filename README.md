@@ -15,6 +15,18 @@ you never received.
 ```
 
 ```
+Her silence, filled oceans,
+and I drowned in, with tears.
+```
+
+```
+It breaks my heart to ask
+why did you bring us so far
+if we were destined to fall apart. 
+```
+
+
+```
 You know you're in love when you can't fall asleep
 because reality is finally better than your dreams.
 ```
