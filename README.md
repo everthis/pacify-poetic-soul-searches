@@ -41,6 +41,10 @@ Be yourself, everyone else is already taken.
 ```
 
 ```
+Luck is what happens when preparation meets opportunity.
+```
+
+```
 When you are angry, be silent.
 ```
 
