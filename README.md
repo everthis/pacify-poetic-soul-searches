@@ -130,6 +130,11 @@ Never judge someone by the opinion of others.
 ```
 
 ```
+Let’s be real for a second: swear words are just words.
+And what makes them offensive or inoffensive is entirely arbitrary.
+```
+
+```
 If you don't heal what hurt you,
 you will bleed on people who didn't cut you.
 ```
