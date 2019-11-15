@@ -104,6 +104,12 @@ it just teaches them to hide them.
 ```
 
 ```
+Too many people think the grass is greener somewhere else
+but grass is green where you water it.
+Remember that.
+```
+
+```
 You often feel tired,
 not because you've done too much,
 but because you've done too little of what sparks a light in you.
