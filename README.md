@@ -292,7 +292,11 @@ Don't accept the work-eat-entertainment-sleep cycle as life.
 
 ```
 When you realize that you love spending time by yourself
-because you are a complete and interesting person on youur own.
+because you are a complete and interesting person on your own.
+```
+
+```
+The search for beauty ended when my eyes met your eyes.
 ```
 
 ```
