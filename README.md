@@ -54,6 +54,11 @@ and no amount of anxiety can change the future.
 ```
 
 ```
+The most beautiful art is looking into someone's eyes,
+when they talk about the things they love.
+```
+
+```
 Empathy without boundaries is self-destruction.
 ```
 
