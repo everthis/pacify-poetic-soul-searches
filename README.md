@@ -63,6 +63,10 @@ Empathy without boundaries is self-destruction.
 ```
 
 ```
+Even those we love the most can be a poison to our souls.
+```
+
+```
 For there is never anything but the present,
 and if one cannot live there, one cannot live anywhere.
 ```
