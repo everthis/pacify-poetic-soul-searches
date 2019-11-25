@@ -141,6 +141,10 @@ Never judge someone by the opinion of others.
 ```
 
 ```
+The one I will become will catch me.
+```
+
+```
 Let’s be real for a second: swear words are just words.
 And what makes them offensive or inoffensive is entirely arbitrary.
 ```
