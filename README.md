@@ -25,6 +25,9 @@ why did you bring us so far
 if we were destined to fall apart. 
 ```
 
+```
+People who make it look easy are often working the hardest.
+```
 
 ```
 You know you're in love when you can't fall asleep
