@@ -144,6 +144,15 @@ just take away it's only power: your attention.
 ```
 
 ```
+Don’t use social media less. Use it more intentionally.
+Follow people who inspire and motivate you.
+Engage with experts you can learn from.
+Create genuine, positive friendships. 
+Just stop mindlessly scrolling, complaining, hating
+and engaging in negativity and bitterness.
+```
+
+```
 Never judge someone by the opinion of others.
 ```
 
