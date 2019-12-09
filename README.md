@@ -1,5 +1,7 @@
 # pacify-poetic-soul-searches / the pacified soul.
 
+![freedom](https://github.com/everthis/pacify-poetic-soul-searches/blob/master/images/freedom.jpeg "freedom")
+
 ```
 If you can't deal with your negativity, at least avoid
 drowning others into it.
