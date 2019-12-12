@@ -59,6 +59,10 @@ and no amount of anxiety can change the future.
 ```
 
 ```
+The best revenge is not to be like that.
+```
+
+```
 The most beautiful art is looking into someone's eyes,
 when they talk about the things they love.
 ```
