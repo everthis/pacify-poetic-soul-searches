@@ -97,6 +97,12 @@ than anyone else might reasonably expect.
 ```
 
 ```
+I'm in an uncomfortable stage of my life
+where my old self is gone but my new self isn't fully born yet.
+I'm in midst of transformation.
+```
+
+```
 One day, in retrospect, the years of struggle
 will strike you as the most beautiful.
 ```
