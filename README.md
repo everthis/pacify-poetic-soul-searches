@@ -92,6 +92,10 @@ Or if they could I never heard of it.
 ```
 
 ```
+You're under no obligation to be the same person you were 5 minutes ago.
+```
+
+```
 Sometimes, magic is just someone spending more time on something
 than anyone else might reasonably expect.
 ```
