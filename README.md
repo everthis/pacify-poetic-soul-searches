@@ -126,6 +126,13 @@ I found the key to happiness, stay away from idiots.
 ```
 
 ```
+Your shitty childhood isn’t an excuse to be a shitty person.
+Your shitty luck with relationships isn’t an excuse to be a shitty person.
+Your shitty experiences aren’t an excuse to be a shitty person.
+We all have our shit, and you can either let it define you, or you grow from it.
+```
+
+```
 Getting angry with people for making mistakes
 doesn't teach them not to make mistakes,
 it just teaches them to hide them.
