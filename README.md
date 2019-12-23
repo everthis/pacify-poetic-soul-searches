@@ -126,6 +126,11 @@ I found the key to happiness, stay away from idiots.
 ```
 
 ```
+When you talk, you are only repeating what you already know.
+But if you listen, you may learn something new.
+```
+
+```
 Your shitty childhood isn’t an excuse to be a shitty person.
 Your shitty luck with relationships isn’t an excuse to be a shitty person.
 Your shitty experiences aren’t an excuse to be a shitty person.
