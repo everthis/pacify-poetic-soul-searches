@@ -50,6 +50,10 @@ Luck is what happens when preparation meets opportunity.
 ```
 
 ```
+I found you without looking, and love you without trying.
+```
+
+```
 When you are angry, be silent.
 ```
 
