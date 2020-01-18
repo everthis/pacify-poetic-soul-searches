@@ -287,6 +287,10 @@ Has a dark side.
 ```
 
 ```
+If you want to shine like a sun, first burn like a sun.
+```
+
+```
 One does not become enlightened by imagining figures of light,
 but by making the darkness conscious.
 ```
