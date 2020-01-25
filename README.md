@@ -230,6 +230,10 @@ Never Stop
 ```
 
 ```
+Give yourself time.
+```
+
+```
 The ocean does not apologize for its depth
 and the mountains do not seek forgiveness for the space they take and so,
 neither shall I.
