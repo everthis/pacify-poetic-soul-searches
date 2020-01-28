@@ -143,6 +143,17 @@ But if you listen, you may learn something new.
 ```
 
 ```
+
+It's the small habits.
+How you spend your mornings.
+How you talk to yourself.
+What you read, watch and listen to. 
+Who you share your energy with.
+Who have access to you.
+That will change your life.
+```
+
+```
 Your shitty childhood isn’t an excuse to be a shitty person.
 Your shitty luck with relationships isn’t an excuse to be a shitty person.
 Your shitty experiences aren’t an excuse to be a shitty person.
