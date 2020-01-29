@@ -124,6 +124,10 @@ will strike you as the most beautiful.
 ```
 
 ```
+The real gateway drug is trauma, read that again.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
