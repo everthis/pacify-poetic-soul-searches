@@ -177,6 +177,10 @@ Remember that.
 ```
 
 ```
+Working on yourself is not selfish.
+```
+
+```
 You often feel tired,
 not because you've done too much,
 but because you've done too little of what sparks a light in you.
