@@ -113,6 +113,12 @@ than anyone else might reasonably expect.
 ```
 
 ```
+Reclaim your mind and get it out of the hands of the cultural engineers who
+want to turn you into a half-baked moron consuming all this trash that's being
+manufactured out of the bones of a dying world.
+```
+
+```
 I'm in an uncomfortable stage of my life
 where my old self is gone but my new self isn't fully born yet.
 I'm in midst of transformation.
