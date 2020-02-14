@@ -84,6 +84,10 @@ Everything Not Saved Will Be Lost.
 ```
 
 ```
+Your silence gives consent.
+```
+
+```
 Even those we love the most can be a poison to our souls.
 ```
 
