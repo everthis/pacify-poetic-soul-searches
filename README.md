@@ -58,6 +58,10 @@ When you are angry, be silent.
 ```
 
 ```
+I am the end or the beginning.
+```
+
+```
 No amount of guilt can change the past,
 and no amount of anxiety can change the future.
 ```
