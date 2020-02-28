@@ -147,6 +147,10 @@ over the stars at night.
 ```
 
 ```
+Your best teacher is your last mistake.
+```
+
+```
 Wrong is wrong even if everyone is doing it,
 right is right even if no one is doing it.
 ```
