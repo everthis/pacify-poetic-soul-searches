@@ -142,6 +142,11 @@ The real gateway drug is trauma, read that again.
 ```
 
 ```
+Sometimes you win,
+sometimes you learn.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
