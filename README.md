@@ -147,6 +147,10 @@ sometimes you learn.
 ```
 
 ```
+I had to make you uncomfortable, otherwise you never would have moved.
+```
+
+```
 I like the kind of people who get excited
 over the stars at night.
 ```
