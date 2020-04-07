@@ -174,6 +174,15 @@ But if you listen, you may learn something new.
 ```
 
 ```
+Her lips taste of honey.
+I kissed her, 
+And took a journey from lips to waist.
+Biting her neck,
+Kissing her shoulders.
+Burying my face into her chest.
+```
+
+```
 
 It's the small habits.
 How you spend your mornings.
