@@ -396,6 +396,12 @@ Nothing is impossible, the word itself says "I'm possible".
 ```
 
 ```
+Nature wants 5 of your 7 children dead.
+It wants you dead by 50.
+Everything better than that is brought to you by science & technology.
+```
+
+```
 The journey of a thousand miles begins with one step.
 ```
 
