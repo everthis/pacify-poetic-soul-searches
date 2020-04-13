@@ -88,6 +88,10 @@ Everything Not Saved Will Be Lost.
 ```
 
 ```
+Demand evidence and think critically.
+```
+
+```
 Your silence gives consent.
 ```
 
