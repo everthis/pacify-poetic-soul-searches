@@ -146,6 +146,12 @@ The real gateway drug is trauma, read that again.
 ```
 
 ```
+I grew up undervaluing solitude.
+As an only child with immigrant parents who were struggling to make ends meet,
+I was my own constant companion.
+```
+
+```
 Sometimes you win,
 sometimes you learn.
 ```
