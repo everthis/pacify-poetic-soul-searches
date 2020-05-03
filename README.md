@@ -42,6 +42,15 @@ and the prettiest eyes of human race.
 ```
 
 ```
+"I don't know what's gonna happen in the future.
+All I know is right here, right now, I want to spend every moment I can with you.
+You're the first thing I want to see when I wake up and the last thing"
+I love you.
+Forever.
+```
+
+
+```
 Be yourself, everyone else is already taken.
 ```
 
