@@ -429,6 +429,10 @@ The journey of a thousand miles begins with one step.
 
 
 ```
+APPLY. FOR. THAT. JOB. EVEN. IF. YOU. DON'T. MEET. ALL. THE. REQUIREMENTS. 100%.
+```
+
+```
 Monday doesn't suck.
 The weather doesn't suck.
 Your job doesn't suck. 
