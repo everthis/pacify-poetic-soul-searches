@@ -485,6 +485,13 @@ If you are never alone, you cannot know yourself.
 You make me want to be a better man.
 ```
 
+```
+“Now every time I witness a strong person,
+I want to know:
+What dark did you conquer in your story?
+Mountains do not rise without earthquakes.”
+```
+
 
 ```
 When I miss you, I re-read our old messages and smile
