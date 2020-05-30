@@ -140,6 +140,11 @@ manufactured out of the bones of a dying world.
 ```
 
 ```
+Your problem is that you equate your purpose with goal-based achievement.
+The universe isn't interested in your achievements, just your heart.
+```
+
+```
 I'm in an uncomfortable stage of my life
 where my old self is gone but my new self isn't fully born yet.
 I'm in midst of transformation.
