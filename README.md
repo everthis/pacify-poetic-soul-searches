@@ -55,6 +55,10 @@ Be yourself, everyone else is already taken.
 ```
 
 ```
+Every next level of your life will demand a different you.
+```
+
+```
 Luck is what happens when preparation meets opportunity.
 ```
 
