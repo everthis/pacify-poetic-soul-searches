@@ -59,6 +59,12 @@ Every next level of your life will demand a different you.
 ```
 
 ```
+How aware are you of your traumas and suppressed emotions
+and how you are actively working to heal them
+before you try to project that shit on me?
+```
+
+```
 Luck is what happens when preparation meets opportunity.
 ```
 
