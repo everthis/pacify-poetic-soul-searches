@@ -153,6 +153,10 @@ than anyone else might reasonably expect.
 ```
 
 ```
+Your opinion is not my reality. 
+```
+
+```
 Reclaim your mind and get it out of the hands of the cultural engineers who
 want to turn you into a half-baked moron consuming all this trash that's being
 manufactured out of the bones of a dying world.
