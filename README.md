@@ -55,6 +55,10 @@ Be yourself, everyone else is already taken.
 ```
 
 ```
+Sometimes you expect a lot from someone because you'd do that much for them.
+```
+
+```
 Every next level of your life will demand a different you.
 ```
 
