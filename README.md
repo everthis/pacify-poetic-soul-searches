@@ -81,6 +81,11 @@ When you are angry, be silent.
 ```
 
 ```
+Never explain yourself.
+Your friends don't need it and your enemies won't believe it.
+```
+
+```
 I am the end or the beginning.
 ```
 
