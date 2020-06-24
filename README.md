@@ -80,6 +80,11 @@ I found you without looking, and love you without trying.
 ```
 
 ```
+Most people just want to be in the result and not in the process,
+and it's in the process where you realize who deserves to be in the result.
+```
+
+```
 When you are angry, be silent.
 ```
 
