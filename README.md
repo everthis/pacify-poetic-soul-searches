@@ -54,6 +54,10 @@ Only dead fish go with the flow.
 ```
 
 ```
+Nothing ever goes away until it has taught us what we need to know.
+```
+
+```
 Be yourself, everyone else is already taken.
 ```
 
