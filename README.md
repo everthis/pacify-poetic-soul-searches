@@ -62,6 +62,12 @@ Be yourself, everyone else is already taken.
 ```
 
 ```
+You’re killing yourself
+for a job that would replace you within a week if you dropped dead.
+Take care of yourself.
+```
+
+```
 Sometimes you expect a lot from someone because you'd do that much for them.
 ```
 
