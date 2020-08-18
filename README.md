@@ -457,6 +457,10 @@ The hardest choices require the strongest wills.
 ```
 
 ```
+Everything that has a beginning has an end.
+```
+
+```
 Go to the people and the places that set a spark in your soul.
 ```
 
