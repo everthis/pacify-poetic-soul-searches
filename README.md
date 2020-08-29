@@ -86,6 +86,11 @@ Luck is what happens when preparation meets opportunity.
 ```
 
 ```
+When you focus on problems, you will have more problems.
+When you focus on possibilities, you will have more opportunities.
+```
+
+```
 I found you without looking, and love you without trying.
 ```
 
