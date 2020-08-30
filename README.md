@@ -62,6 +62,10 @@ Be yourself, everyone else is already taken.
 ```
 
 ```
+There is nobody who is so enlightened that they don't need to work on themselves.
+```
+
+```
 You’re killing yourself
 for a job that would replace you within a week if you dropped dead.
 Take care of yourself.
