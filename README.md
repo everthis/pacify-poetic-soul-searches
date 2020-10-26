@@ -159,6 +159,11 @@ Even those we love the most can be a poison to our souls.
 ```
 
 ```
+Everyday you give away a piece of yourself until nothing is left
+and that's how you become a ghost.
+```
+
+```
 For there is never anything but the present,
 and if one cannot live there, one cannot live anywhere.
 ```
