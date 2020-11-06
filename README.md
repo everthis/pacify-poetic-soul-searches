@@ -112,6 +112,10 @@ When you are angry, be silent.
 ```
 
 ```
+Not my best year but at least I've learned how to love myself.
+```
+
+```
 Never explain yourself.
 Your friends don't need it and your enemies won't believe it.
 ```
