@@ -129,6 +129,10 @@ I am the end or the beginning.
 ```
 
 ```
+Make yourself a priority.
+```
+
+```
 No amount of guilt can change the past,
 and no amount of anxiety can change the future.
 ```
