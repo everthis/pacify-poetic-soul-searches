@@ -209,6 +209,11 @@ The chains of habit are too light to be felt until they are too heavy to be brok
 ```
 
 ```
+People come and go.
+That's life.
+```
+
+```
 Reclaim your mind and get it out of the hands of the cultural engineers who
 want to turn you into a half-baked moron consuming all this trash that's being
 manufactured out of the bones of a dying world.
