@@ -256,6 +256,10 @@ sometimes you learn.
 ```
 
 ```
+Fear eats the soul.
+```
+
+```
 I had to make you uncomfortable, otherwise you never would have moved.
 ```
 
