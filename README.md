@@ -22,6 +22,13 @@ and I drowned in, with tears.
 ```
 
 ```
+I look at you and try not to fall in love.
+But that smile,
+that damned smile, always make my heart skip a beat.
+```
+
+
+```
 It breaks my heart to ask
 why did you bring us so far
 if we were destined to fall apart. 
