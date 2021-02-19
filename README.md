@@ -3,7 +3,7 @@
 ![freedom](https://github.com/everthis/pacify-poetic-soul-searches/blob/master/images/freedom.jpeg "freedom")
 
 ```
-I could stay here forever.
+I could stay right here forever.
 ```
 
 ```
