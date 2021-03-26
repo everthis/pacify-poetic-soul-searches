@@ -123,6 +123,12 @@ The way they leave tells you everything.
 ```
 
 ```
+Why can't I think the simple way you do?!
+Because you don't practice enough to see the idea behind it.
+```
+
+
+```
 When you focus on problems, you will have more problems.
 When you focus on possibilities, you will have more opportunities.
 ```
