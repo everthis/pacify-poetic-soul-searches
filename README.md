@@ -39,6 +39,10 @@ if we were destined to fall apart.
 ```
 
 ```
+Do not blame the mirror if you are ugly.
+```
+
+```
 Young at age,
 Old at soul.
 ```
