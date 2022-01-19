@@ -830,6 +830,14 @@ I heard my heart break. It was a small, clean sound,
 like the snapping of a flower's stem.
 ```
 
+```
+Mind your business.
+Crush your goals and make moves in silence.
+You don't need an audience to achieve greatness.
+You just need to focus!
+```
+
+
 
 ```
 Maybe it's the best ending.
